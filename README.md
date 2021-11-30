@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... cosmology, phycology,and buisness!
 - 🌱 I’m currently learning ... everyday!
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...702-814-9110
+- 📫 How to reach me ...702-783-5192
 
 <!---
 bluivy60R/bluivy60R is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
